@@ -1,0 +1,5 @@
+- 👋 Oba, tutu aqui
+- 👀 Vo salvar meus codigos dos games aqui uau
+- 🌱 To fazendo curso de programacao de games
+- 💞️ Quero trabalhar nas melhores empresas do mundo uiui
+- 📫 meu email é secreto >:)
